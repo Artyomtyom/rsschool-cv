@@ -1,8 +1,7 @@
 # Novikov Artyom Sergeevich #
 * * * *
 ## Contacts ##
-__e-mail:__ **fixgurumaster@gmail.com**
-__phone number:__ **+375291310087**
+__e-mail:__ **fixgurumaster@gmail.com**                                                                       __phone number:__ **+375291310087**
 * * * *
 ## Main information ##
 
