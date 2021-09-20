@@ -6,10 +6,10 @@
 * * * *
 ## Main information ##
 
-I'm very positive, friendly and communicative persom. Also I'm reliable and always ready to help others with their problems. I have an active lifestyle and I mix it with rading and self-development. My active life includes swimming, riding a bycicle going to gym and tourism.
+I'm very positive, friendly and communicative person. Also I'm reliable and always ready to help others with their problems. I have an active lifestyle and I mix it with reading and self-development. My active life includes swimming, riding a bicycle, going to gym and tourism.
 ### Why do I start learning at RS school? ###
 
-Because I want to find myself especially in programming. I don't know what will I become and that's whu it is important for me to try everything in my life. I always am ready to experiments.
+Because I want to find myself especially in programming. I don't know what will I become and that's why it is important for me to try everything in my life. I am always ready to experiments.
 
 * * * * 
 ## Skills ##
